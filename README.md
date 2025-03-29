@@ -1,5 +1,2 @@
-hi i'm hyperfixated on RDR 1 / 2 , 9-1-1 , ETM , RTC
-<!---
-1rishTerrier/1rishTerrier is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+uhmuhmuhm work in progress heh 
+![image](https://media-hosting.imagekit.io/df063b0e9f2a4dad/tumblr_a7c01cec859548f892b46dafbfafc84c_0b91b87d_75.gif.webp?Expires=1837898372&Key-Pair-Id=K2ZIVPTIP2VGHC&Signature=FOB6Fh3aurPKwMZg~TNPIs4p0Y-LVXwU3Big5K2BMJAE1L~gk8XuHYSdb4WhlejhFdvV6bENJ0lSCPksFEzjEcy0VpvoAmq930aCQMwO12d2e-O0KkWZ2K48kSNPi3ri-XOMtnZalAGg~YYxn9p65Hd~GIVp-34tu3f9bzVjhrDjSd6e9BINs4SgDR99l24YE3Yet6~xF9RF7rjerQNIffPXsrAF2R-nV7Hd8bzF38WTal~fJcoHw4j3a4Go3znGY-cuPjaitpBSgy-IXjwtkWeLsTEwhiRz5H20Ybhq73-ahHwIsRO2Qbpur86~cUaWJXJr3dUDaiV3-BcLjmdlHw__)
